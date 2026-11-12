@@ -1,4 +1,4 @@
-👋 Hi, I’m Thao Ngan, 22 years old. I graduated with a major in Data Science and Business Analytics from DN University of Economics (GPA:   3.32/4.0)
+👋 Hi, I’m Thao Ngan, 24 years old. I graduated with a major in Data Science and Business Analytics from DN University of Economics (GPA:   3.32/4.0)
 
 📫 How to reach me:
 - Phone: 0333249327
